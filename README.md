@@ -1,0 +1,1 @@
+I have been passionate about my work since cutting pizza for Little Ceasars as a teen, and trying to use two pizza cutters at once! I work full time as a System's Engineer for WIRED! Technology Partners. Currently I have a Bachelor's Degree in Web Development with a Minor in IT.
